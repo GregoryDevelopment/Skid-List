@@ -11,3 +11,5 @@
 - xHypinq - Resells shit cores
 - Mython - is doo doo
 - Kuzni - acts like he something special
+- Kipes - Mr io.kipes.practice = Zonix Practice skid flid kid using alex's code
+- Tempay - Licks kipes bum hole
