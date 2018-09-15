@@ -12,3 +12,4 @@
 - Kuzni - acts like he something special
 - Kipes - Mr io.kipes.practice = Zonix Practice skid flid kid using alex's code
 - Tempay - Licks kipes bum hole
+- Puddles - cant code
